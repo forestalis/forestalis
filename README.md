@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... not yet :)
 - 📫 How to reach me ... very difficult :P
 - 😄 Pronouns: ... anyway
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ... hold on ...
 
 <!---
 forestalis/forestalis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
